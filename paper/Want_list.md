@@ -1,0 +1,1 @@
+1.[On the Measure of Intelligence](https://arxiv.org/pdf/1911.01547.pdf)
